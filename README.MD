@@ -1,4 +1,4 @@
-<h1 align="center">GITHUB SUSPENDED MY ACCOUNT BECAUSE I KNOW HOW TO CODE 🥷🏾🥷🏾</h1>
+<h1 align="center">GITHUB SUSPENDED MY ACCOUNT BECAUSE I KNOW HOW TO COOK 🧑‍🍳🧑‍🍳</h1>
 
 <p align="center"><i>533 contributions. 193 repos. 88 stars. One (1) crime: shipping.</i></p>
 
